@@ -1,1 +1,0 @@
-### Tsumiki Trap Database
